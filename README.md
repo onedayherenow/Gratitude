@@ -36,4 +36,48 @@ Hello dear friends,
                                                     It's all about geometry
                                                       Thank you Pythagoras
                                                   
-                            
+                                                   
+                                                                  
+                                                                   I love learning the geometry physics computer and mathematical-
+                                                        logical arts because it creates a new medium for me to express myself emotionally and creatively 
+                                    
+                                    & I have a strong affinity for whole brained synergy         
+                                                between the left and right brains, the "heart and the mind"
+                                                
+                                                  However I believe the heart should always take the reigns only if it is all expressed logically
+
+
+
+                              Im not assuming. I agree assumptions are dangerous and that's the foundation of physics. 
+                                      Remove all assumptions (ocahm's razor) and start from first principles, 
+                                      aka the energy value of a system and study 
+                                      it's dynamical architecture and study the relationships 
+                                      between systems.
+
+
+
+
+& then study your own "nature" what interests you gravitate towards and are inspired by.
+              And then look to see how you can logically create a sypathetic harmonic resonance with the largest scale of a system  possible (aka the universe)
+
+
+
+
+                      I have been gifted with a loving family and God that gives me more than I deserve.  
+                              Therefore I am seeing this as an opportunity to follow my inspiration & 
+                              realize logically how I can serve the universe and my family 
+                              in a way that I feel is in alignment with what I'm here to do to help others 
+
+
+
+
+                                      So this app idea I'm really excited about & love
+
+
+                          Because it fulfills the need to help others with something i believe in
+
+
+          Math informs geometry which informs both music and physics, and physics informs biology and chemistry, as well as cosmology and music again
+
+                                                   
+                                                  
